@@ -6,7 +6,7 @@
 //© 2022 kavee Bot Inc. Dark nero Bot MD 
 //Thank you to Lord Buddha, Family and Myself
 //════════════════════════════//
-// my owenr kaveesha
+// my owenr Abdhul
 //════════════════════════════//
 //If you recode and uploading on your channel
 //or copy pasting the codes in ur script, 
